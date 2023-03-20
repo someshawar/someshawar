@@ -7,5 +7,4 @@
 - 🤔 I’m looking for help with somthings
 - 💬 Ask me about nothing
 - 📫 How to reach me: dont you dare , i am good.
-- ⚡ Fun fact: black holes are 2d and 3d at the same time.
-
+- ⚡ Fun fact:Nothing bonds best than bloodlust 
